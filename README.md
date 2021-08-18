@@ -10,3 +10,5 @@ Angeles's:
 1- Cats name is Conner
 2- I graduated as a valedictorian 
 3- I'm horrible at spelling
+Khadeja - answer: 1) is the lie .w.
+Astrid - answer: 2) is the lie .w.
