@@ -1,4 +1,4 @@
-# 2-truths-and-1-lie-p
+# 2-truths-and-1-lie-:p
 its what the title says 🙂
 khadeja's:
 1. i have 3 siblings :3
