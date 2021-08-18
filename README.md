@@ -21,3 +21,8 @@ Khadeja - answer: 1) is the lie .w.
 
 Astrid - answer: 2) is the lie 
 Astrid - 1.(my dogs name is Lola), 2.(I hate m&m's), 3.(my friend is 6ft tall)
+Khadeja - answer: 2 is the lie)
+Angeles - answer: 2 is the lie)
+
+
+khadeja- 3 was the lie -w-"
