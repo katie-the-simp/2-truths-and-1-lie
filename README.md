@@ -6,10 +6,17 @@ khadeja's:
 3. i own a cat, their name is summer and they are ginger
 
 Angeles- Answer: 3) is the lie
+
 Astrid- Answer: 3) is the lie
+
 Angeles's:
+
 1- Cats name is Conner
+
 2- I graduated as a valedictorian 
+
 3- I'm horrible at spelling
+
 Khadeja - answer: 1) is the lie .w.
-Astrid - answer: 2) is the lie .w.
+
+Astrid - answer: 2) is the lie 
